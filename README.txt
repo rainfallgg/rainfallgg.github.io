@@ -1,0 +1,1 @@
+This is just a random ass website I made, you could use it as a 404 or whatever you want
